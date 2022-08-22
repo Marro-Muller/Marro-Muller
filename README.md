@@ -1,5 +1,5 @@
 # Maria Rosa, also known as Marrô, <strike>The Great</strike> salutes you!
-I'm an 28yo <strong>fullstack developer student</strong> living in Brazil 🇧🇷 and looking to work as <strong>Product Owner</strong>.
+I'm an 28yo <strong>fullstack developer student</strong> living in Brazil 🇧🇷 and working as <strong>Product Owner</strong>.
 
 - 👀 I’m interested in literature and arts in general, motorcycle (I am the founder of a women's motorcycle branch :motorcycle::woman:) and languages (human's and computer's)
 - 💞️ I’m looking to collaborate on any new project. Really, I'm eager to learn and help!
